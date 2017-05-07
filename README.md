@@ -1,5 +1,5 @@
 # The Buddha Speaks English
-(1) "This is the Noble Truth about dissatisfaction: Birth, aging, death, sorrow, lamentation, pain, grief and despair are dissatisfaction; association with the unbeloved is dissatisfaction; separation from the loved is dissatisfaction; not getting what you want is dissatisfaction. In short, the five clinging-aggregates are dissatisfaction."
+(1) "This is the Noble Truth about dissatisfaction: Birth, aging, death, sorrow, lamentation, pain, grief and despair are dissatisfaction; association with the unloved is dissatisfaction; separation from the loved is dissatisfaction; not getting what you want is dissatisfaction. In short, the five clinging-aggregates are dissatisfaction."
 
 — SN 56.11
 ## Sources
