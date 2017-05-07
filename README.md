@@ -1,7 +1,7 @@
 # The Buddha Speaks English
-(1) This is the Noble Truth about dissatisfaction: Birth, aging, death, sorrow, complaining, pain, grief and despair cause dissatisfaction; closeness to what you don't like causes dissatisfaction; separation from what you like causes dissatisfaction; not getting what you want causes dissatisfaction. 
+(1) The Noble Truth about dissatisfaction is: Birth, aging, death, sorrow, complaining, pain, grief and despair cause dissatisfaction; closeness to what you don't like causes dissatisfaction; separation from what you like causes dissatisfaction; not getting what you want causes dissatisfaction. 
 
-This is the noble truth of the origin of dissatisfaction: the craving that makes for further becoming — accompanied by passion & delight, relishing now here & now there — i.e., craving for sensual pleasure, craving for becoming, craving for non-becoming.
+The Noble Truth of the origin of dissatisfaction is: the craving that makes for further becoming — accompanied by passion & delight, relishing now here & now there — i.e., craving for sensual pleasure, craving for becoming, craving for non-becoming.
 (SN 56.11)
 
 ## Sources
