@@ -1,5 +1,5 @@
 # The Buddha Speaks English
-(1) Birth, aging, death, sorrow, complaining, pain, grief and despair cause dissatisfaction; closeness to what you don't like causes dissatisfaction; separation from what you like causes dissatisfaction; not getting what you want causes dissatisfaction. 
+(1) Birth, aging, death, sorrow, complaining, pain, grief and despair cause dissatisfaction; closeness to what you don't like, separation from what you like and not getting what you want causes dissatisfaction. 
 
 The origin of dissatisfaction is the craving that makes for further arising — accompanied by passion & delight, relishing now here & now there — i.e., craving for sensual pleasure, craving for arising, craving for non-becoming.
 (SN 56.11)
