@@ -3,7 +3,7 @@
 
 (1) Birth, aging, death, sorrow, complaining, pain, grief and desperation cause dissatisfaction; closeness to what you don't like, separation from what you like and not getting what you want causes dissatisfaction. 
 
-The origin of dissatisfaction is the desire that things are different — accompanied by passion, delight, desire for sensual pleasure, arising and cessation.
+The origin of dissatisfaction is the desire that things are different — accompanied by passion, delight, desire for sensual pleasure and clinging to things or pushing things away.
 (SN 56.11)
 
 ## Sources
