@@ -7,7 +7,7 @@ The origin of dissatisfaction is the desire that things are different — accomp
 
 The cessation of dissatisfaction: the complete fading & cessation, renunciation, relinquishment, release, & letting go of that craving.
 
-The way of practice leading to the cessation of dissatisfaction: precisely this Noble Eightfold Path — right view, right resolve, right speech, right action, right livelihood, right effort, right mindfulness, right concentration.
+The practice leading to the end of dissatisfaction is this Eightfold Path — right view, right resolve, right speech, right action, right livelihood, right effort, right mindfulness, right concentration.
 (SN 56.11)
 
 ## Sources
