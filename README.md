@@ -1,7 +1,7 @@
 # The Buddha Speaks English
-(1) Birth, aging, death, sorrow, complaining, pain, grief and despair cause dissatisfaction; closeness to what you don't like, separation from what you like and not getting what you want causes dissatisfaction. 
+(1) Birth, aging, death, sorrow, complaining, pain, grief and desperation cause dissatisfaction; closeness to what you don't like, separation from what you like and not getting what you want causes dissatisfaction. 
 
-The origin of dissatisfaction is the desire that accumulates — accompanied by passion & delight craving for sensual pleasure, arising and non-becoming.
+The origin of dissatisfaction is the desire that things where different — accompanied by passion, delight, desire for sensual pleasure, arising and cessation.
 (SN 56.11)
 
 ## Sources
