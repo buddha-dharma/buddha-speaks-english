@@ -1,4 +1,6 @@
 # The Buddha Speaks English
+*The available english translations of the suttas are incomprehensible. This is an attempt to make sense of them and translate them into english. This is for my personal use. But if they are useful to you enjoy.*
+
 (1) Birth, aging, death, sorrow, complaining, pain, grief and desperation cause dissatisfaction; closeness to what you don't like, separation from what you like and not getting what you want causes dissatisfaction. 
 
 The origin of dissatisfaction is the desire that things where different — accompanied by passion, delight, desire for sensual pleasure, arising and cessation.
