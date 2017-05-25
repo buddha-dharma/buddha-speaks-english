@@ -13,3 +13,4 @@ The practice leading to the end of the hard time is this Eightfold Path — righ
 ## Sources
 1.  "Dhammacakkappavattana Sutta: Setting the Wheel of Dhamma in Motion" (SN 56.11), translated from the Pali by Thanissaro Bhikkhu. Access to Insight (Legacy Edition), 30 November 2013, http://www.accesstoinsight.org/tipitaka/sn/sn56/sn56.011.than.html .
 2. "The First Noble Truth: The Noble Truth of dukkha", edited by Access to Insight. Access to Insight (Legacy Edition), 5 November 2013, http://www.accesstoinsight.org/ptf/dhamma/sacca/sacca1/index.html
+3. "Ogden's Basic English" http://ogden.basic-english.org/words.html
