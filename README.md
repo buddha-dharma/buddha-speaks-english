@@ -1,14 +1,14 @@
 # The Buddha Speaks English
 *The available english translations of the suttas are incomprehensible. This is an attempt to make sense of them and translate them into english. This is for my personal use and still in flux. But if is useful to you then enjoy. I am trying to use Ogden's Basic English as much as possible.*
 
-(1) To be born, get old, die, worry and be in protest, pain and sad gives you a hard time.
-Giving up hope; to be near to what you don't like, to be away from what you like and not getting what you want gives you a hard time. 
+(1) To be born, get old, die, worry and be in protest, pain and sad makes you unhappy.
+Giving up hope; to be near to what you don't like, to be away from what you like and not getting what you want makes you unhappy. 
 
-You'll have a hard time when you want things to be different from how they are — together with a strong spirit, joy, want for stimulation of the senses and to hold things tight or to push things away.
+You'll be unhappy when you want things to be different from how they are — together with a strong spirit, joy, want for stimulation of the senses and to hold things tight or to push things away.
 
-The end of the hard time: the complete fading & end, renunciation, relinquishment, release, & letting go of that craving.
+The end of the unhappyness: the complete fading & end, renunciation, relinquishment, release, & letting go of that craving.
 
-The practice leading to the end of the hard time is this Eightfold Path — right view, right resolve, right speech, right action, right livelihood, right effort, right mindfulness, right concentration.
+The practice leading to the end of the unhappyness is this Eightfold Path — right view, right resolve, right speech, right action, right livelihood, right effort, right mindfulness, right concentration.
 (SN 56.11)
 
 ## Sources
