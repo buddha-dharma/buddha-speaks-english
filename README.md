@@ -4,7 +4,7 @@
 (1) To be born, get old, die, worry and be in protest, pain and sad makes you unhappy.
 Giving up hope; to be near to what you don't like, to be away from what you like and not getting what you want makes you unhappy. 
 
-You'll be unhappy when you want things to be different from how they are — together with a strong spirit, joy, want for stimulation of the senses and to hold things tight or to push things away.
+You'll be unhappy when you want things to be different from how they are — together with a strong spirit, joy, want for stimulation of the senses and to cling to or to push things away.
 
 The end of the unhappyness: the complete fading & end, renunciation, relinquishment, release, & letting go of that craving.
 
